@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lucas.silver520@gmail.com**
 
-- 📄 Know about my experiences [Linkedin](https://www.linkedin.com/in/lucas-silver-760662252/)
+- 📄 Know about my experiences [Resume](https://resume.io/r/6Lk33zoik)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
